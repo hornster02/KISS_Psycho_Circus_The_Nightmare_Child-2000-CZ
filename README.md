@@ -2,4 +2,4 @@
 <br/>
 Mrazík, Top GAMES
 
-https://github.com/hornster02/KISS_Psycho_Circus_The_Nightmare_Child-2000-crack_v1.13-DX11-21-9-widescreen-CZ/raw/main/KISS_Psycho_Circus_The_Nightmare_Child_2000_crack_v1.13_cestina_DX11_219_widescreen.rar
+https://github.com/hornster02/KISS_Psycho_Circus_The_Nightmare_Child-2000-CZ/__cz.rar
